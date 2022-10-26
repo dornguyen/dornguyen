@@ -6,11 +6,11 @@ i am currently a computer science major at csu long beach & looking to expand my
 
 generally, i like to hang out with my friends and meet new people :D on my freetime, i enjoy crafting jewelry and free painting ~
 
-constantly, i am looking to open up my perspective to diverse viewpoints and make myself "better" with each day :p
+constantly, i am looking to open up my perspective to diverse viewpoints and make myself a better version of myself with each day :>
 
-if you want to reach me, email dorothylenguyen@gmail.com or find me on most networks as @dornguyen c:
+if you want to reach me, contact me at dorothylenguyen@gmail.com or find me on most networks as @dornguyen c:
 
-alright! it was nice meeting you +_+ **bye bye**
+alright! it was nice meeting you :D **bye bye**
 
 <!--
 **dornguyen/dornguyen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
